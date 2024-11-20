@@ -1,4 +1,4 @@
-Hi, I'm Ben Williams, a PhD student at UCL & ZSL working on artificial intelligence for coral reef conservation and restoration, read more about my work here: [https://www.zsl.org/science/users/ben-williams](https://www.zsl.org/about-zsl/our-people/ben-williams)
+Hi, I'm Ben Williams, a PhD student at UCL & ZSL working on artificial intelligence for coral reef conservation and restoration, read more about my work here: [https://www.zsl.org/about-zsl/our-people/ben-williams](https://profiles.ucl.ac.uk/83904-benjamin-williams)
 
 📫 Reach me on: ben.williams.20@ucl.ac.uk
 
